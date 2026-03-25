@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hanzalahcmd
-- 📫 can contact me using my email:- umer.haniii@gmail.com 
+- 📫 can contact me using my email:- Hanzalahumer21@gmail.com 
 
 <!---
 hanzalahcmd/hanzalahcmd is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
